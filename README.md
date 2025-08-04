@@ -1,3 +1,5 @@
-# Induction-programme-
-Name - HARMAN DALOTRA. BRANCH - ECE
-Day 1, 8:30 a.m. Attended session by the Causmic club, At the auditorium. Explaining the basics of GNDEC curriculum, answering FAQ's and a general introduction to the College,
+# Day 1
+## 30-7-2025
+### 8:30-9:30 A.M, Shabad-Kirtan Gurudwara Sahib.
+### 9:30-10:00 A.M,Tea and snacks, Gurudwara Sahib 
+### 10:00 A.M and onwards, Inaugral ceremony.
